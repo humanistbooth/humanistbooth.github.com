@@ -1,20 +1,20 @@
 This is an informal list of some online resources folks at the Humanist Outreach booth (at Balboa Park in San Diego most Saturdays) reocommend; similar to our recommended book list. These are not Secular Humanist per se, but are related.
 
-**Atheist Experience - Youtube  **
+**Atheist Experience - Youtube**
 [https://www.youtube.com/user/AtheistExperience](https://www.youtube.com/user/AtheistExperience)  
 "The Atheist Experience is a weekly cable access television show in Austin, Texas, geared at a non-atheist audience. It is produced by the Atheist Community of Austin." Matt Dillahunty is one of the principals.
 
-**Skeptics Guide to the Universe - Podcast **
+**Skeptics Guide to the Universe - Podcast**  
 Dr. Steven Novella and team discuss science and critical thinking  
 [https://www.theskepticsguide.org/](https://www.theskepticsguide.org/)  
 "The Skeptics’ Guide to the Universe is dedicated to promoting critical thinking and science literacy through insightful content and resources including an award-winning weekly podcast."
 
-**Pharangula - Blog  **
+**Pharangula - Blog**
 By Humanist and Biologist PZ Myers.  
 [https://freethoughtblogs.com/pharyngula](https://freethoughtblogs.com/pharyngula)  
 "PZ Myers is a biologist at the University of Minnesota Morris, with a special interest in developmental biology and evolution. He’s been battling creationists and bible-wallopers on the internet since 1993, and has gotten slightly curmudgeonly about it all. The blog Pharyngula is his outlet for venting his fury at faith, stupidity, and injustice, an occupation which somehow led to him being named American Humanist of the Year in 2009, and International Humanist of 2011 by the IHEU. He’s confident that science is the only tool we have for reaching new knowledge, regards faith and ignorance as vices, and finds happiness with his family."
 
-**Gutsick Gibbon - Youtube  **
+**Gutsick Gibbon - Youtube**
 Videos debunking Young Earth Creationists  
 [https://www.youtube.com/c/GutsickGibbon](https://www.youtube.com/c/GutsickGibbon)  
 "Welcome to Gutsick Gibbon! I'm Erika, a current PhD student in Biological Anthropology. I have a Masters of Research degree in Primate Biology, Behavior and Conservation with a BSA in Pre-Professional Animal Science and minors in Anthropology and in Biology.  
@@ -41,7 +41,7 @@ Every Week New Videos 8 PM GMT Wednesdays and Fridays
 "Sir Sic is 'a new low for atheists'  
 I am a stupid, making fun of any and all ideas that are even more the dumb than I am".
 
-**The Thinking Atheist - Podcasts, Videos, etc**
+**The Thinking Atheist - Podcasts, Videos, etc**  
 Atheist content, community  
 [https://www.thethinkingatheist](https://www.thethinkingatheist.com/)  
 "The Thinking Atheist isn't a person. It's an icon. An idea. An encouragement to reject faith and embrace reason and evidence as we approach humanity's challenges and opportunities. Hosted by former Christian broadcaster Seth Andrews, TTA is a resource for atheist content, community, and a constant reminder to pursue a Personal Relationship With Reality."
