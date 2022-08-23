@@ -1,6 +1,6 @@
 **Vegan/Vegetarian Online Recommendations**
 
-This is an informal list of some recommended online resources related to plant-based whole foods and Vegan choices, that some of us participating at the Humanist Outreach booth (at Balboa Park in San Diego most Saturdays) find useful; similar to our recommended book list and our more general online recommendations list. (Also see our [general Huananist/Atheist resources page](../)). Our main motivations for this are to:
+This is an informal list of some recommended online resources related to plant-based whole foods and Vegan choices, that some of us participating at the Humanist Outreach booth (at Balboa Park in San Diego most Saturdays) find useful; similar to our recommended book list and our [general Huananist/Atheist resources page](../). Our main motivations for this are to:
 1. reduce animal suffering,
 2. reduce our impact on the environment and/or
 3. improve our own health and well-being.
