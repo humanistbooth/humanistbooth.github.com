@@ -23,6 +23,7 @@ Global network of activists
 "Direct Action Everywhere is a global network of activists working to achieve revolutionary social and political change for animals in one generation."
 
 **For the environment:**  
+
 [https://en.wikipedia.org/wiki/Veganism#Environmental\_veganism](https://en.wikipedia.org/wiki/Veganism#Environmental_veganism)  
 "A 2018 study found that global adoption of plant-based diets would reduce agricultural land use by 76% (3.1 billion hectares, an area the size of Africa) and cut total global greenhouse gas emissions by 28%. Half of this emissions reduction came from avoided emissions from animal production including methane and nitrous oxide, and half came from trees re-growing on abandoned farmland which remove carbon dioxide from the air.\[302\]\[290\] The authors conclude that avoiding meat and diary is the 'single biggest way' to reduce one's impact on Earth.\[21\]"  
 [https://en.wikipedia.org/wiki/Environmental\_impact\_of\_meat\_production](https://en.wikipedia.org/wiki/Environmental_impact_of_meat_production)  
