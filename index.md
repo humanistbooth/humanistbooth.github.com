@@ -1,4 +1,4 @@
-This is an informal list of some online resources folks at the Humanist Outreach booth (at Balboa Park in San Diego most Saturdays) reocommend; similar to our recommended book list. These are not Secular Humanist per se, but are related.  V5
+This is an informal list of some online resources folks at the Humanist Outreach booth (at Balboa Park in San Diego most Saturdays) reocommend; similar to our recommended book list. These are not Secular Humanist per se, but are related.  V6
 
 **Atheist Experience - Youtube**  
 [https://www.youtube.com/user/AtheistExperience](https://www.youtube.com/user/AtheistExperience)  
@@ -41,6 +41,12 @@ Every Week New Videos 8 PM GMT Wednesdays and Fridays
 "Sir Sic is 'a new low for atheists'  
 I am a stupid, making fun of any and all ideas that are even more the dumb than I am".
 
+**Debate against Young Earth Creationist Kent Hovind**  
+Kent Hovind and Nicholas Lamar Soutter
+[https://www.youtube.com/watch?v=_u6Z1wFK5nk](https://www.youtube.com/watch?v=_u6Z1wFK5nk)
+Hovind is an American Christian fundamentalist evangelist.
+Soutter is an American writer and philosopher.
+
 **The Thinking Atheist - Podcasts, Videos, etc**  
 Atheist content, community  
 [https://www.thethinkingatheist](https://www.thethinkingatheist.com/)  
@@ -71,8 +77,3 @@ Renegade Science Teacher
 [https://www.youtube.com/user/magnabosco210](https://www.youtube.com/user/magnabosco210)  
 "I initiate friendly conversations with people to see how they arrived at their deeply-held beliefs (e.g., Gods, karma, ghosts, politics, etc.), and then ask respectful questions to help them discover if the method(s) used are unreliable so that more reliable methods can be employed to maintain the belief and/or the level of confidence in the belief can be adjusted to be more in line with reality."
 
-**NutritionFacts.org - Videos and Podcasts**  
-Promoting evidence-based diets for longer, healthier lives  
-[https://www.NutritionFacts.org](https://www.NutritionFacts.org)  
-"What is the healthiest diet? Find out what the latest science is saying about your favorite foods to help you make the healthiest choices for you and your family. Watch our free videos on more than 2,000 health and nutrition topics with new videos and articles uploaded every day."  
-Recommended by one of our group members (Wayne) although some people believe that the principal (Dr. Michael Greger, the president of Nutritionfacts Org Inc), tends to overstate the case for what he recommends: a diet centered on whole plant food.
