@@ -1,6 +1,6 @@
-This is an informal list of some online resources folks at the Humanist Outreach booth (at Balboa Park in San Diego most Saturdays) reocommend; similar to our recommended book list. These are not Secular Humanist per se, but are related.
+This is an informal list of some online resources folks at the Humanist Outreach booth (at Balboa Park in San Diego most Saturdays) reocommend; similar to our recommended book list. These are not Secular Humanist per se, but are related.  V4
 
-**Atheist Experience - Youtube**
+**Atheist Experience - Youtube**  
 [https://www.youtube.com/user/AtheistExperience](https://www.youtube.com/user/AtheistExperience)  
 "The Atheist Experience is a weekly cable access television show in Austin, Texas, geared at a non-atheist audience. It is produced by the Atheist Community of Austin." Matt Dillahunty is one of the principals.
 
