@@ -28,21 +28,21 @@ and [https://podcasts.apple.com/us/podcast/new-testament-review/id1377442882](ht
 "Ian N Mills and Laura Robinson are Ph.D. candidates \[Mills has completed his PhD in Religion now\] at Duke University. They co-host the New Testament Review podcast. On this YouTube channel you can participate in 'Afterparties' and 'Non-Canonical Bible Studies' as well as lectures, shorts, and other content."  
 Of particular interest is their reivew of the book "The Case for Christ" by Lee Strobel (NT Review, Ep. 30) [https://www.youtube.com/watch?v=HjJMS1a00Pk](https://www.youtube.com/watch?v=HjJMS1a00Pk)
 
-**Saturday Morning Breakfast Cereal  
-**by Zach Weinersmith  
+**Saturday Morning Breakfast Cereal**  
+by Zach Weinersmith  
 [https://www.smbc-comics.com](https://www.smbc-comics.com)  
 "SMBC is a daily comic about science, philosophy, love, sex, death, and wiener jokes."  
 One we enjoyed recently is: ["Is it Okay to Eat Cows?"](https://www.smbc-comics.com/comic/okay-3)
 
-**Sir Sic - Youtube  
-**Fighting Silliness, Stupidity and the Sdumbs  
+**Sir Sic - Youtube** 
+Fighting Silliness, Stupidity and the Sdumbs  
 Every Week New Videos 8 PM GMT Wednesdays and Fridays  
 [https://www.youtube.com/c/SirSicTheSocialInequalityCrusader](https://www.youtube.com/c/SirSicTheSocialInequalityCrusader)  
 "Sir Sic is 'a new low for atheists'  
 I am a stupid, making fun of any and all ideas that are even more the dumb than I am".
 
-**The Thinking Atheist - Podcasts, Videos, etc  
-**Atheist content, community  
+**The Thinking Atheist - Podcasts, Videos, etc**
+Atheist content, community  
 [https://www.thethinkingatheist](https://www.thethinkingatheist.com/)  
 "The Thinking Atheist isn't a person. It's an icon. An idea. An encouragement to reject faith and embrace reason and evidence as we approach humanity's challenges and opportunities. Hosted by former Christian broadcaster Seth Andrews, TTA is a resource for atheist content, community, and a constant reminder to pursue a Personal Relationship With Reality."
 
