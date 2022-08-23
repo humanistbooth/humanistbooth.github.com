@@ -1,28 +1,28 @@
 This is an informal list of some online resources folks at the Humanist Outreach booth (at Balboa Park in San Diego most Saturdays) reocommend; similar to our recommended book list. These are not Secular Humanist per se, but are related.
 
-**Atheist Experience - Youtube  
-**[https://www.youtube.com/user/AtheistExperience](https://www.youtube.com/user/AtheistExperience)  
+**Atheist Experience - Youtube  **
+[https://www.youtube.com/user/AtheistExperience](https://www.youtube.com/user/AtheistExperience)  
 "The Atheist Experience is a weekly cable access television show in Austin, Texas, geared at a non-atheist audience. It is produced by the Atheist Community of Austin." Matt Dillahunty is one of the principals.
 
-**Skeptics Guide to the Universe - Podcast  
-**Dr. Steven Novella and team discuss science and critical thinking  
+**Skeptics Guide to the Universe - Podcast **
+Dr. Steven Novella and team discuss science and critical thinking  
 [https://www.theskepticsguide.org/](https://www.theskepticsguide.org/)  
 "The Skeptics’ Guide to the Universe is dedicated to promoting critical thinking and science literacy through insightful content and resources including an award-winning weekly podcast."
 
-**Pharangula - Blog  
-**By Humanist and Biologist PZ Myers.  
+**Pharangula - Blog  **
+By Humanist and Biologist PZ Myers.  
 [https://freethoughtblogs.com/pharyngula](https://freethoughtblogs.com/pharyngula)  
 "PZ Myers is a biologist at the University of Minnesota Morris, with a special interest in developmental biology and evolution. He’s been battling creationists and bible-wallopers on the internet since 1993, and has gotten slightly curmudgeonly about it all. The blog Pharyngula is his outlet for venting his fury at faith, stupidity, and injustice, an occupation which somehow led to him being named American Humanist of the Year in 2009, and International Humanist of 2011 by the IHEU. He’s confident that science is the only tool we have for reaching new knowledge, regards faith and ignorance as vices, and finds happiness with his family."
 
-**Gutsick Gibbon - Youtube  
-**Videos debunking Young Earth Creationists  
+**Gutsick Gibbon - Youtube  **
+Videos debunking Young Earth Creationists  
 [https://www.youtube.com/c/GutsickGibbon](https://www.youtube.com/c/GutsickGibbon)  
 "Welcome to Gutsick Gibbon! I'm Erika, a current PhD student in Biological Anthropology. I have a Masters of Research degree in Primate Biology, Behavior and Conservation with a BSA in Pre-Professional Animal Science and minors in Anthropology and in Biology.  
 Here you can find videos concerning primates, general zoology, paleontology, anthropology, and evolutionary biology! I also spend a hefty amount of time debunking Young Earth Creationism, which I find to be an enjoyable hobby akin to debunking Flat Earth.  
 I find there to be a deep and personal beauty in being a part of the animal kingdom, and thus strive to be a gentle and modern ape. I hope you leave here feeling the same way!"
 
-**New Testament Review - Podcast and Youtube  
-**Christian scholars review influential works of New Testament scholarship.  
+**New Testament Review - Podcast and Youtube  **
+Christian scholars review influential works of New Testament scholarship.  
 [https://www.youtube.com/channel/UCR8SeIgZf4x0-wUMWVvWchw](https://www.youtube.com/channel/UCR8SeIgZf4x0-wUMWVvWchw)  
 and [https://podcasts.apple.com/us/podcast/new-testament-review/id1377442882](https://podcasts.apple.com/us/podcast/new-testament-review/id1377442882)  
 "Ian N Mills and Laura Robinson are Ph.D. candidates \[Mills has completed his PhD in Religion now\] at Duke University. They co-host the New Testament Review podcast. On this YouTube channel you can participate in 'Afterparties' and 'Non-Canonical Bible Studies' as well as lectures, shorts, and other content."  
