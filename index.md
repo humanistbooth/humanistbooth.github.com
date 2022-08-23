@@ -42,7 +42,7 @@ Every Week New Videos 8 PM GMT Wednesdays and Fridays
 I am a stupid, making fun of any and all ideas that are even more the dumb than I am".
 
 **Debate against Young Earth Creationist Kent Hovind**  
-Kent Hovind and Nicholas Lamar Soutter
+Kent Hovind and Nicholas Lamar Soutter  
 [https://www.youtube.com/watch?v=_u6Z1wFK5nk](https://www.youtube.com/watch?v=_u6Z1wFK5nk)
 Hovind is an American Christian fundamentalist evangelist.
 Soutter is an American writer and philosopher.
