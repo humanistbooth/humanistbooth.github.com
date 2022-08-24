@@ -1,11 +1,11 @@
-**Vegan/Vegetarian Online Recommendations**
+## Recommended Vegan/Vegetarian Online Resources
 
 This is an informal list of some recommended online resources related to plant-based whole foods and Vegan choices, that some of us participating at the Humanist Outreach booth (at Balboa Park in San Diego most Saturdays) find useful; similar to our recommended book list and our [general Huananist/Atheist resources page](../). Our main motivations for this are to:
 1. reduce animal suffering,
 2. reduce our impact on the environment and/or
 3. improve our own health and well-being.
 
-**To reduce animal suffering:**  
+### To reduce animal suffering:
 
 **Every Argument Against Veganism | Ed Winters | TEDxBathUniversity**  
 Earthling Ed, a vegan educator, debunks every argument against veganism.  
@@ -22,13 +22,13 @@ Global network of activists
 [https://www.directactioneverywhere.com](https://www.directactioneverywhere.com)  
 "Direct Action Everywhere is a global network of activists working to achieve revolutionary social and political change for animals in one generation."
 
-**For the environment:**  
+### For the environment:  
 
 [https://en.wikipedia.org/wiki/Veganism#Environmental\_veganism](https://en.wikipedia.org/wiki/Veganism#Environmental_veganism)  
 "A 2018 study found that global adoption of plant-based diets would reduce agricultural land use by 76% (3.1 billion hectares, an area the size of Africa) and cut total global greenhouse gas emissions by 28%. Half of this emissions reduction came from avoided emissions from animal production including methane and nitrous oxide, and half came from trees re-growing on abandoned farmland which remove carbon dioxide from the air.\[302\]\[290\] The authors conclude that avoiding meat and diary is the 'single biggest way' to reduce one's impact on Earth.\[21\]"  
 [https://en.wikipedia.org/wiki/Environmental\_impact\_of\_meat\_production](https://en.wikipedia.org/wiki/Environmental_impact_of_meat_production)  
 
-**For our health:**  
+### For our health:  
 
 **NutritionFacts.org - Videos and Podcasts**  
 Promoting evidence-based diets for longer, healthier lives  
