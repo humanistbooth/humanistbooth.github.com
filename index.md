@@ -1,4 +1,6 @@
-This is an informal list of some online resources folks at the Humanist [Outreach Booth] (https://www.facebook.com/askanatheistbooth/)  (at Balboa Park in San Diego most Saturdays) reocommend; similar to our recommended book list. These are not Secular Humanist per se, but are related.   Also see our [Vegan](/vegan) resources page.
+### Recommended Securlar Humanist/Atheist Online Resources
+
+This is an informal list of some online resources folks at the Humanist [Outreach Booth](https://www.facebook.com/askanatheistbooth/)  (at Balboa Park in San Diego most Saturdays) reocommend; similar to our recommended book list. These are not Secular Humanist per se, but are related.   Also see our [Vegan](/vegan) resources page.
 
 **Atheist Experience - Youtube**  
 [https://www.youtube.com/user/AtheistExperience](https://www.youtube.com/user/AtheistExperience)  
