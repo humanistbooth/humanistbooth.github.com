@@ -1,6 +1,6 @@
 ## Recommended Secular Humanist/Atheist Online Resources
 
-This is an informal list of some online resources folks at the Humanist [Outreach Booth](https://www.facebook.com/askanatheistbooth/)  (at Balboa Park in San Diego most Saturdays) reocommend; similar to our recommended book list. These are not Secular Humanist per se, but are related.   Also see our [Vegan](/vegan) resources page.
+This is an informal list of some online resources that folks at the Humanist [Outreach Booth](https://www.facebook.com/askanatheistbooth/)  (at Balboa Park in San Diego most Saturdays) recommend; similar to our recommended book list. These are not Secular Humanist per se, but are related.   Also see our [Vegan](/vegan) resources page.
 
 **Atheist Experience - Youtube**  
 [https://www.youtube.com/user/AtheistExperience](https://www.youtube.com/user/AtheistExperience)  
@@ -45,7 +45,7 @@ I am a stupid, making fun of any and all ideas that are even more the dumb than 
 
 **Debate against Young Earth Creationist Kent Hovind**  
 Kent Hovind and Nicholas Lamar Soutter  
-[https://www.youtube.com/watch?v=_u6Z1wFK5nk](https://www.youtube.com/watch?v=_u6Z1wFK5nk)
+[https://www.youtube.com/watch?v=_u6Z1wFK5nk](https://www.youtube.com/watch?v=_u6Z1wFK5nk)  
 Hovind is an American Christian fundamentalist evangelist.
 Soutter is an American writer and philosopher.
 
