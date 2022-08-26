@@ -1,1 +1,1 @@
-!(image index.png "HumanistMooth.github.io")
+!(image index.png "HumanistBooth.github.io")
