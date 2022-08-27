@@ -1,2 +1,1 @@
-![](image index.png)
-*HumanistBooth.github.io*
+![HumanistBooth.github.io](index.png)
