@@ -1,4 +1,5 @@
-##Title "Ask An Atheist" Questions and Answers ##by Wayne
+##Title "Ask An Atheist" Questions and Answers 
+##by Wayne
 
 I'm a frequent volunteer/participant at the  [https://www.facebook.com/askanatheistbooth/](Secular Outreach booth) in Balboa Park (also see our [https://humanistbooth.github.io/](Online Resources page)).  The purpose of our booth is to counter-balance the religious booths there (various Christian Fundamentalists especially), let people know that we exist too (being 'out' Atheists) representing our community in a positive way, let fellow seculars know about groups in the San Diego area, and engage with friendly discussion and debate with religious folks.  One of our banners is inviting people to "Ask An Atheist". This is a lot of fun, both in talking with people who stop by (and/or listening to others' discussions), and chatting with fellow Agnostic-Atheists in the booth (interesting stories from former Mainline Protestants, Catholics, Mormons/LDS, Jehovah's Witness, Muslim and Hindu, and life-long Atheists).  
 
