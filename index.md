@@ -2,6 +2,10 @@
 
 This is an informal list of some online resources that folks at the Humanist [Outreach Booth](https://www.facebook.com/askanatheistbooth/)  (at Balboa Park in San Diego most Saturdays) recommend; similar to our recommended book list. These are not Secular Humanist per se, but are related.   Also see our [Vegan](/vegan) resources page.
 
+**Our own Facebook "Outreach Booth" Group Page**
+[Outreach Booth](https://www.facebook.com/askanatheistbooth/)
+We often post photos of the Question Of The Day board when done and other items of interest.  And there's an old introductory video.  You can also contact us by Message or posting comments.
+
 **Atheist Experience - Youtube**  
 [https://www.youtube.com/user/AtheistExperience](https://www.youtube.com/user/AtheistExperience)  
 "The Atheist Experience is a weekly cable access television show in Austin, Texas, geared at a non-atheist audience. It is produced by the Atheist Community of Austin." Matt Dillahunty is one of the principals.
