@@ -2,7 +2,7 @@
 
 This is an informal list of some online resources that folks at the Humanist [Outreach Booth](https://www.facebook.com/askanatheistbooth/)  (at Balboa Park in San Diego most Saturdays) recommend; similar to our recommended book list. These are not Secular Humanist per se, but are related.   Also see our [Vegan](/vegan) resources page.
 
-**Our own Facebook Outreach Booth Group Page**
+**Our own Facebook Outreach Booth Group Page**</br>
 [https://www.facebook.com/askanatheistbooth/](https://www.facebook.com/askanatheistbooth/)
 "We often post photos of the Question Of The Day board when done and other items of interest.  And there's an old introductory video.  You can also contact us by Message or posting comments."
 
