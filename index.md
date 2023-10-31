@@ -4,7 +4,7 @@ This is an informal list of some online resources that folks at the Humanist [Ou
 
 **Our own Facebook "Outreach Booth" Group Page**
 [Outreach Booth](https://www.facebook.com/askanatheistbooth/)
-We often post photos of the Question Of The Day board when done and other items of interest.  And there's an old introductory video.  You can also contact us by Message or posting comments.
+"We often post photos of the Question Of The Day board when done and other items of interest.  And there's an old introductory video.  You can also contact us by Message or posting comments."
 
 **Atheist Experience - Youtube**  
 [https://www.youtube.com/user/AtheistExperience](https://www.youtube.com/user/AtheistExperience)  
