@@ -6,6 +6,20 @@ This is an informal list of some online resources that folks at the Humanist [Ou
 [https://www.facebook.com/askanatheistbooth/](https://www.facebook.com/askanatheistbooth/)  
 We often post photos of the Question Of The Day board when done and other items of interest.  And there's an old introductory video.  You can also contact us by Message or posting comments.
 
+**Religion For Breakfast - Youtube**  
+[https://www.youtube.com/@ReligionForBreakfast](https://www.youtube.com/@ReligionForBreakfast)  
+"An educational channel dedicated to the academic, nonsectarian study of religion. We promote improving the public's religious literacy by exploring humanity's beliefs and rituals through an anthropological, sociological, and archaeological lens. Religion for Breakfast does not endorse any particular religious tradition or non-religious perspective. Please be respectful in the comments! The host, Dr. Andrew M. Henry, is a scholar of religious studies. His research focus is early Christianity and late Roman religion. He earned his PhD at Boston University. Religion for Breakfast believes everyone should know a little bit more about religion. It touches every aspect of human civilization—our art, politics, history, and culture. It has inspired some of our most ethereal music. It has motivated some of our greatest leaders. And, yes, it has also sparked some of our ..."
+
+**The Gnostic Gospels - Youtube talk**  
+[https://www.youtube.com/watch?v=Agh7EYdLrp0&list=PLEnqfPnCRxLKqM_A7vmYc9xZ2xZcg-itw](https://www.youtube.com/watch?v=Agh7EYdLrp0&list=PLEnqfPnCRxLKqM_A7vmYc9xZ2xZcg-itw)  
+A talk on The Gnostic Gospels (1 hr 40 minutes)  
+"Many early Christians believed that all matter is evil, and the spirit-realm is good. There was no “sin” just “ignorance”, and the key to eternal life was found through “gnosis” — knowledge that was kept hidden from the masses. We’ll look at their many gospels and other texts that combine ideas Christian, Jewish, and Greek ideas which Orthodox Christians left out of the Bible."
+
+**Centre Place Lectures - Youtube**  
+[https://www.youtube.com/@centre-place](https://www.youtube.com/@centre-place)  
+The above Gnostic Gospels talk is part of this Centre Place Lectures series.  
+"Lectures and discussion on history, theology, philosophy, religious studies, comparative religion, neuroscience, and more. Participants share a commitment to life-long learning and a passion for exploring the ideas that philosophers and theologians have wrestled with since ancient times."
+
 **Atheist Experience - Youtube**  
 [https://www.youtube.com/user/AtheistExperience](https://www.youtube.com/user/AtheistExperience)  
 "The Atheist Experience is a weekly cable access television show in Austin, Texas, geared at a non-atheist audience. It is produced by the Atheist Community of Austin." Matt Dillahunty is one of the principals.
