@@ -16,7 +16,7 @@ Another are the Unitarian Universalist congregations around the county, includin
 
 ### Areteanism
 
-There's also [Areteanism] (https://bio.site/areteanism) which is "a humanist religion that values science over faith, and individual interpretation over dogma.".  Rob, the guy that makes our booth happen, attended this once and it seemed to him be a worthwhile Humanist group.  
+There's also [Areteanism](https://bio.site/areteanism) which is "a humanist religion that values science over faith, and individual interpretation over dogma.".  Rob, the guy that makes our booth happen, attended this once and it seemed to him be a worthwhile Humanist group.  
 
 ### Secular Student Alliance
 
